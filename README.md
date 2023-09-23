@@ -23,3 +23,7 @@ Join the growing community of Windows users who trust WOP to keep their systems 
 Ready to take control of your Windows PC? Download WOP today and experience the difference for yourself!
 
 Let's optimize and protect together. 🛡️🚀
+
+![22dm6crh](https://github.com/Fluffyzwz/Windows-Optimization-Privacy/assets/85907829/0d27c456-99e3-4c83-8ef1-a4e8941583ea)
+![cuy1lkzo](https://github.com/Fluffyzwz/Windows-Optimization-Privacy/assets/85907829/8e3c29f7-2161-4606-8adf-34475755d129)
+![ad772370](https://github.com/Fluffyzwz/Windows-Optimization-Privacy/assets/85907829/c890ef79-fdb6-4278-a0cd-627e35f8b3f6)
