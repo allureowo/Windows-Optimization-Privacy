@@ -1,4 +1,3 @@
-![image](https://github.com/Fluffyzwz/Windows-Optimization-Privacy/assets/85907829/5d026477-49f4-4114-a422-8e57f9d985ec)
 we're dedicated to empowering Windows users with the tools they need to enhance their system's performance and protect their privacy in today's digital world. We understand the importance of having a secure and efficient computing experience, and we're here to make it happen for you.
 
 What WOP Offers:
