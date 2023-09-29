@@ -29,6 +29,10 @@ Ready to take control of your Windows PC? Download WOP today and experience the 
 
 Let's optimize and protect together. 🛡️🚀
 
-![22dm6crh](https://github.com/Fluffyzwz/Windows-Optimization-Privacy/assets/85907829/0d27c456-99e3-4c83-8ef1-a4e8941583ea)
-![cuy1lkzo](https://github.com/Fluffyzwz/Windows-Optimization-Privacy/assets/85907829/8e3c29f7-2161-4606-8adf-34475755d129)
-![ad772370](https://github.com/Fluffyzwz/Windows-Optimization-Privacy/assets/85907829/c890ef79-fdb6-4278-a0cd-627e35f8b3f6)
+<p>new V2 changes</p>
+
+![9sjbrtvj](https://github.com/Fluffyzwz/Windows-Optimization-Privacy/assets/85907829/46baf038-801b-49dd-b7fd-e1103afde395)
+
+![9kyvaqu5](https://github.com/Fluffyzwz/Windows-Optimization-Privacy/assets/85907829/b373df01-efab-451f-b29d-3cdc4d7d0ca7)
+
+![the44xtn](https://github.com/Fluffyzwz/Windows-Optimization-Privacy/assets/85907829/4cd377be-fa9a-483d-982d-872284db49b3)
