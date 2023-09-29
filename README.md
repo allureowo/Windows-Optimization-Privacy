@@ -1,3 +1,6 @@
+
+![WOP](https://github.com/Fluffyzwz/Windows-Optimization-Privacy/assets/85907829/52ee5cbf-fe74-405e-9ce2-2c23461f0ce3)
+
 Discord server for support: https://discord.gg/pjzhY7tkx6
 
 we're dedicated to empowering Windows users with the tools they need to enhance their system's performance and protect their privacy in today's digital world. We understand the importance of having a secure and efficient computing experience, and we're here to make it happen for you.
